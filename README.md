@@ -1,6 +1,1 @@
-# abelo-at-fligno
-
-Christian Jay Abelo Cute
-
-
-For stash 
+Christian Jay Abelo - INTERN
